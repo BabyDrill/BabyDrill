@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **BabyDrill#2788**
 
-- 🐺 My Project **https://discord.gg/yjPGt2YMcg**
+- 🐺 My Project **https://discord.gg/titanac**
 
 - 🛡️ Titan AntiCheat **https://youtu.be/I9sMxtmJFmw**
 
